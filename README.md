@@ -1,0 +1,5 @@
+- 👋 Hey, I’m @Paniawesome.
+- 👀 I’m interested in a lot of things.
+- 🌱 I’m currently learning computer sciences and game development.
+- 💞️ I’m looking to collaborate on nothing for now.
+- 📫 You can reach me through my linktree https://linktr.ee/Paniawesome
